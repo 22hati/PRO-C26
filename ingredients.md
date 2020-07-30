@@ -1,0 +1,10 @@
+1. All purpose flour (1/2 cup)
+2. Semi Sweet dark chocolate (200 grams)
+3. Butter (1/2 cup)
+4. Brown Sugar (1/2 cup)
+5. Normal Sugar (1 cup)
+6. Eggs (3)
+7. Salt (1/4 tsp)
+8. Vanilla Essence (1 tsp)
+9. Cocoa Powder (1/4 cup)
+10. Baking tray and Parchment paper
